@@ -4,7 +4,7 @@ Especialista en programacion nivel medio
 
 
 
-En habilidades la primera es que soy algo sociable y comico con mis amigos tambien traquilo no trato de llamr mucho la atencion 
+En habilidades la primera es que soy algo sociable y comico con mis amigos tambien traquilo no trato de llamar mucho la atencion 
 En destrezas programo de manera eficiente por ejemplo una base de datos 
 Mis objetivos termibar mis estudios para salir a trabajar en mundo laborar y ganarme la vida 
 
