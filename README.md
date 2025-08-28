@@ -1,6 +1,6 @@
 # Practica-2025
 BENJAMIN IRIARTE CURSO 4h liceo insuco de valparaiso duracion de la carrera dos años 
-Especialista en programacion nivel medio 
+cursos echos jaba y robotica
 
 
 
